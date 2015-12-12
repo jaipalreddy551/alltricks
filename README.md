@@ -1,0 +1,2 @@
+# alltricks
+Trail only
